@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-* 👂 My name is Quyet 
+👂 My name is Quyet 
